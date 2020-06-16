@@ -1,6 +1,7 @@
 # Shark-study
 Study of shark attacks
 
+<img src=https://www.stokedfortravel.com/wp-content/uploads/2019/01/shark-surfing-scuba-diving-safety-attacks-1920x1014.jpg?189db0&189db0>
 
 IS THE SOUTH EAST OF AUSTRALIA THE HIGHEST LOCATION OF SHARK ATTACKS TO SURFERS?
 
